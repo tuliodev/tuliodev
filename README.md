@@ -1,6 +1,6 @@
 ### Hi, I'am Tulio ! 👋
 
-- :briefcase: I’m currently working on Grupo Adriano Corbuccio
+- :briefcase: I’m currently working on Brasil card
 - 📫 Discord -Tulio#4280
 - :briefcase: Open for freelancers
 
