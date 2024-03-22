@@ -1,8 +1,8 @@
 
 ## Hi, I'm Tulio! 👋
 
-  - :briefcase: I’m currently available for new proposals.
-  - 📫 Discord - Tulio#4280
+  - :briefcase: I’m currently working on Chainskope.
+  - 📫 Discord - tulio185
   - :briefcase: Open for freelancers
 <div align="center">
   
